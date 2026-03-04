@@ -116,3 +116,16 @@ To learn more about Ryan Zofay leadership coaching and mindset development, visi
 ➡️ https://ryanzofay.com/ryan-zofay-speaker-author-entrepreneur-business-life-coach
 
 ---
+
+## Ryan Zofay — Profile Data
+
+Name: Ryan Zofay  
+Profession: Entrepreneur, Leadership Coach, High-Performance Strategist  
+Focus Areas: Leadership Development, Entrepreneur Mindset, High Performance Coaching, Business Strategy  
+Website: https://ryanzofay.com
+
+---
+
+## Keywords
+
+Ryan Zofay • leadership coach • executive coaching • entrepreneur mindset • high performance coaching • leadership development • business strategy • personal development  • life coaching  • business coaching
